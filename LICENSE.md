@@ -1,4 +1,4 @@
-
+custom XMind for Windows Integration | real-time-sync + export-options offers the most advanced XMind for Windows integration, with real-time-sync and export-options. Ideal for
 
 
 
